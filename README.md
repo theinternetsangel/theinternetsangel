@@ -1,6 +1,7 @@
 # <p align="center">[⋆｡°✩ INTERNET ANGEL ˙⋆✮⋆˚࿔](https://theinternetsangel.straw.page/)</p>
 
-<p align="center"><img width="596" height="684" alt="image" src="https://github.com/user-attachments/assets/6cba7fdd-13a3-4262-9136-fb3d314b474c" /></p>
+<p align="center"><img width="600" height="523" alt="tumblr_4d842cf002538b2a395ef42a47323064_0e5bd235_640" src="https://github.com/user-attachments/assets/8ba587d7-25ee-4ab3-b1cd-4f9f2142239a" />
+
 
 <!--
 **theinternetsangel/theinternetsangel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
