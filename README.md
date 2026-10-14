@@ -1,6 +1,7 @@
 # <p align="center">[⋆｡°✩ INTERNET ANGEL ˙⋆✮⋆˚࿔](https://theinternetsangel.straw.page/)</p>
 
-<p align="center"><img width="596" height="692" alt="!wikigallery36" src="https://github.com/user-attachments/assets/dc246a5a-061e-48a7-9308-a693927f827e" />
+<p align="center"><img width="3464" height="3264" alt="unnamed" src="https://github.com/user-attachments/assets/4f06f0f7-eee9-4891-a97b-c310e63886a8" />
+
 
 
 
